@@ -1,3 +1,3 @@
 # firsthub
 我的第一个小程序
-Hello,AitSchool!
+其实我很不熟练，但我会努力的！！
